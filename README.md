@@ -1,5 +1,3 @@
-<img width="1280" height="150" alt="IMG_1160" src="https://github.com/user-attachments/assets/8a58e89e-170e-4af6-9f59-758c2223f4b2" />
-
-![01636c5434cd0462086620c60fdfec16](https://github.com/user-attachments/assets/87b82fe4-bcff-4ea1-8f5c-eda20c05efc5)
-
-<img width="1280" height="150" alt="IMG_1160" src="https://github.com/user-attachments/assets/80309d9b-b76b-48c1-8a3e-eff514e37f78" />
+ <a href="https://1l0v3myw1f3.straw.page">s</a>𝗍raሠpɒϱe₍ ᐢ.ˬ.ᐢ₎
+　<a href="https://oumi.atabook.org">a</a>𝙩𝙖.ᐟ
+!![bunny-bunny-eating](https://github.com/user-attachments/assets/cf094ba0-0f10-4900-8aa0-6eabedb2ed6c)
